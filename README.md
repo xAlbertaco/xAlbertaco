@@ -1,4 +1,4 @@
-I’m Alberto Castro Naveira
+I’m Alberto 
 I study computing engineering in EPI Gijon. A Campus situated in Asturias, Spain.
 I´m interested in Hardware and data-analisis.
 The easiest way tho reach me is sending me a email to alberto.castronaveira99@gmail.com
